@@ -1,1 +1,1 @@
-# A-story
+# this is A story about honkai:star Rail
